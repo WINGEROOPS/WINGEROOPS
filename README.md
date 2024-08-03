@@ -5,6 +5,7 @@
 - 📫 How to reach me! why you want to reach me i will reach out to you guys😁...
 - 😄 Pronouns:Human 
 - ⚡ Fun fact: guys whenever i close my eyes it is all dark 💫...
+- ✈︎ ♡
 
 <!---
 WINGEROOPS/WINGEROOPS is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
